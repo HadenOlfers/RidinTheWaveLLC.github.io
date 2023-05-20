@@ -1,1 +1,1 @@
-# RidinTheWaveLLC.github.io
+# RidinTheWaveLLC.PrivacyPolicy.github.io
